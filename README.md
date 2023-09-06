@@ -18,7 +18,7 @@ Try our Schezwan Pasta with a mix of vegetables and mozzarella cheese.
 
 ## Connect with me:
 [![linkedin](https://img.shields.io/badge/linkedin-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/sky4231/)
-
+<a href="https://www.instagram.com/_its._sky._/"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Instagram_icon.png/900px-Instagram_icon.png?20200512141346" height="30" width="30"></a>
 
 
 ## 
