@@ -22,6 +22,6 @@ Try our Schezwan Pasta with a mix of vegetables and mozzarella cheese.
 
 
 ## 
-### Leave a 🌟 if it was Helpful!!
+### Leave a 🌟 if it was Helpful!
 ### Thanks!
 
